@@ -1,4 +1,4 @@
 ## Hi there 👋
 
-- 📫 How to reach me: LinkedIn: [https://www.linkedin.com/in/dawar-waqar/](dawar-waqar)
+- 📫 How to reach me: LinkedIn: [dawar-waqar](https://www.linkedin.com/in/dawar-waqar/)
 
